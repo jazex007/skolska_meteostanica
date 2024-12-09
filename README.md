@@ -1,0 +1,1 @@
+# skolska_meteostanica
